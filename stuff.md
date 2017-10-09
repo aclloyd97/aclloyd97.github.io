@@ -1,5 +1,5 @@
 ---
 layout: page
-title: Stuff is Cool
+title: Stuff
 ---
 Mom's Spaghetti
