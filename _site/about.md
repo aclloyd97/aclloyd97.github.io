@@ -1,6 +1,7 @@
 ---
 layout: page
 title: About
+permalink: aclloyd97.github.io/_site/about
 ---
 
 <p class="message">
