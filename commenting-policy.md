@@ -7,7 +7,7 @@ comments: false
 ## Commenting Policy
 Currently, we follow The Mary Sue's Commenting Policies becasue I am too lazy to create my own.
 
-### Mary Sure Commenting Policy
+### Mary Sue Commenting Policy
 Unlike the Wild West of most of the Internet, we have a very strict comment policy on The Mary Sue. If you’re an asshole, you’ll be banned. Sorry, assholes!
 
 That, most important, statement out of the way, here’s more you should know whether you’re a regular commenter or new to the site.
