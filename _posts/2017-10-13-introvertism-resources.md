@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "signs you are an introvert"
+title: "introvert resources"
 category: introvert
 tags: [introvertism, resources]
 comments: true
