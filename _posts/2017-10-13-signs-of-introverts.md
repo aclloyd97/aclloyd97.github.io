@@ -12,7 +12,7 @@ What is an _introvert_? Simply put, an introvert prefer their inner thoughts rat
 Taken from [the Huffington Post](https://www.huffingtonpost.com/entry/stories-introverts-will-understand_us_56fc1ed3e4b083f5c606759e), I found an interesting article summarizing about "introvert signs." This post will be me detailing their list with my perspective.
 
 #### 1. You find small talk incredibly cumbersome.
-I find it really hard to have meaningful small talk with a person. But it that the point of small talk, that it is not meaningful? I usually prefer sitting quietly, observing how people do things and their interactions. But why create conversation that neither one of you will remember? I do not see a point to talk just for the sake of talking.
+I find it really hard to have meaningful small talk with a person. But it that the point of small talk, that it is not meaningful? I usually prefer sitting quietly, observing how people do things and their interactions. But why create conversation that neither one of you will remember? I do not see a point to talk just for the sake of talking, I wish for my words to remain meaningful.
 
 #### 2. You go to parties - but not to meet people.
 Usually, I go to parties to make an appearance, as if to confirm that I indeed still exist. I would not go so far as to say I avoid my friends, but their are times where I need a break from them. You know? I do care deeply about my friends, but for the most part I get exhausted being in social activities. There are so many aspects and nuances to analyze when makin decisions, I never know which choice is the right one to take.
@@ -32,9 +32,13 @@ Usually, I go to parties to make an appearance, as if to confirm that I indeed s
 #### 15. You notice details that others don't.
 #### 16. You have a constantly running inner monologue.
 #### 17. You have low blood pressure.
+I have never tested this one out, but I wonder about the physiological manifestations of being an introvert. According to [The Introvert Spring](https://introvertspring.com/introvert-biology-behavior/), other factors include a greater sensitivity to caffeine, a tendency to salivate more easily, and sweat in most reactions. Now
+
 #### 18. You've been called an "old soul"-since your 20s.
 #### 19. You don't feel "high" from your surroundings.
 #### 20. You look at the big picture.
 #### 21. You've been told to "come out of your shell."
 #### 22. You're a writer.
+Obviously.
+
 #### 23. You alternate between phases of work and solitude, and periods of social activity.
